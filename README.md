@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @MaukieMauk
+- 👀 I’m interested in creating useless things
+- 🌱 I’m currently learning Python and lua
+- 💞️ I’m looking to collaborate on Roblox
+- 📫 How to reach me, Discord: MaukieMauk
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: My code is 💩
