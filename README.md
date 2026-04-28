@@ -4,4 +4,3 @@
 - I’m looking to collaborate on Roblox
 - How to reach me, Discord: MaukieMauk
 - Pronouns: He/Him
-- Only makes offline useless sh*t
